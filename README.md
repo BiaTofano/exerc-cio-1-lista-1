@@ -1,1 +1,1 @@
-# exercio-1-lista-1
+# exercicio-1-lista-1
